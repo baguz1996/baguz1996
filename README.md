@@ -1,1 +1,1 @@
-#uso de recursos
+#aprovechamiento de recursos
